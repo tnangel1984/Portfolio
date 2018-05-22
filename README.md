@@ -1,4 +1,4 @@
 
-### PORFOLIO - Teilachanell Angel
+### PORTFOLIO - Teilachanell Angel
 
 ### GENERAL ASSEMBLY 2018
